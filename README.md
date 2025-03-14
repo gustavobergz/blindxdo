@@ -1,5 +1,6 @@
 # 💫 About Me:
 Im currently studying
+![among us](https://tenor.com/pt-BR/view/amongla-among-us-talking-gif-20050692)
 
 
 ## 🌐 Socials:
