@@ -1,6 +1,6 @@
 # 💫 About Me:
 Im currently studying
-![image](https://github.com/user-attachments/assets/1a2aa568-2edc-4705-9767-99b2348a0fad)
+![image](https://tenor.com/bwigq.gif)
 
 
 
