@@ -1,7 +1,7 @@
 # 💫 About Me:
 Im currently studying
-![among us](![image](https://github.com/user-attachments/assets/792fe6cf-a024-426e-bb32-388da66e5b1d)
-)
+![image](https://github.com/user-attachments/assets/1a2aa568-2edc-4705-9767-99b2348a0fad)
+
 
 
 ## 🌐 Socials:
