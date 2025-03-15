@@ -1,7 +1,6 @@
 # 💫 About Me:
-Im currently studying
-
-
+Im currently studying</br>
+![](https://c.tenor.com/kwM4_YQ1990AAAAC/tenor.gif)
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/g_bergzx) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@blindxdo) 
